@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @alikingprogrammer
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning program from youtube and from github projects
+- 📫 To What I Want Reach ? I Want Reach To Biggest Program Company In World And Create Apps And Games 
+- 👀 Youtuber
+- 🌱 Popular
+- 💞️ Programmer
+- 📫 King Of Kingdom
